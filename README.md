@@ -1,5 +1,7 @@
 # Management-Notes-PDF
 Management Notes PDF Management Notes PDF Management Notes PDF Management Notes PDF Management Notes PDF 
+![Uploading B.Sc Nursing 6th Semester Management & Leadership.png…]()
+
 <section class="payment-section">
     <h2>Buy B.Sc Nursing 6th Semester Notes</h2>
     <p>Instant Access After Payment</p>
